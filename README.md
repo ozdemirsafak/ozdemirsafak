@@ -24,13 +24,13 @@ Yazılıma olan tutkum sayesinde birçok proje üzerinde çalıştım ve hala ö
 
 #### Daha Fazla Bilgi ve İletişim:
 
-- [LinkedIn](https://linkedin.com/in/ozdemirsafak)
+- [LinkedIn](https://linkedin.com/in/safakozdemir)
 - E-posta: ozdemir.safak@outlook.com
 
 #### Kişisel İlgi Alanlarım:
 
 - Dizi ve film izlemek
-- Yüzmek
-- Futbol ve voleybol oynamak
+- Satranç
+- Basketbol ve futbol oynamak
 
 Profilimi ziyaret ettiğiniz için teşekkür ederim. Birlikte çalışmak veya sadece teknolojiyle ilgili sohbet etmek isterseniz, lütfen iletişime geçmekten çekinmeyin!
